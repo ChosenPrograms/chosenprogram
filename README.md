@@ -1,4 +1,4 @@
-## Hi there, I'm Tahazzot 👋
+## Hey there, I'm Tahazzot 👋
 
 ###  UI/UX **Designer** & Full Stack **Developer**
 
